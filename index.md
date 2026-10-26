@@ -36,7 +36,7 @@ Users may request information about the processing of their personal data and re
 
 For privacy-related inquiries, please contact:
 
-**Privacy contact:** [Insert a monitored contact email address]
+**Privacy contact:** mvmbti@gmail.com
 
 ## 8. Changes to This Policy
 
